@@ -1,4 +1,4 @@
-
+Experience baddies like never before with baddies Scripts exclusive, the #1 Script. Includes teleport and auto-collect for unbeatable performance.
 
 
 
